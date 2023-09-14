@@ -18,3 +18,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 - 📫 How to reach me: gitme@virtuaires.com.br
+
+Smile before you go (☞ﾟヮﾟ)☞
