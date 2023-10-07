@@ -17,6 +17,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 📫 How to reach me: gitme@virtuaires.com.br
+- 📫 Reach me: gitme@virtuaires.com.br
 
 Smile before you go ^_^
