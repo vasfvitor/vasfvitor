@@ -2,4 +2,5 @@
 
 - Reach me: gitme@virtuaires.com.br
 
-- Generalist
+- Generalist, not only in code but in everything: I have some musical theory and practice; some unfinished/finished digital paintings; some donuts and default cubes in Blender (and lots of nodes), some high school physical science and math teaching background, some digital marketing experience... Oh and I barely modeled a Stirling Engine in Autodesk Inventor.
+- For a while I collected almost 50 species of plants, some of them died :/, some I gave away, but most are back on earth living by themselves. Have litte experience in construction, specially in finishing and small home repairs and maintenance... and prolly much more (or not) if you ask me.
